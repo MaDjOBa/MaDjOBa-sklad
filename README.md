@@ -1,0 +1,1 @@
+# MaDjOBa-sklad
